@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 
 html5 e css
 - 💞️ I’m looking to collaborate on software development and improvement
-- 📫 How to reach me by email felipegabrielabreusoares4@gmail.com
+- 📫 Contact me by email at felipegabrielabreusoares4@gmail.com
 - 😄 Pronouns: man
 - ⚡ Fun fact: 
 I love games, horses and computers
